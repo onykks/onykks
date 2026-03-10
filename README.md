@@ -1,5 +1,10 @@
-## Hi there 👋
-
+## onyks! >_<
+i offtab/afk most of the time so whisper or add me on dsc if u want me to respond..!
+i mostly go by they/them pronouns but i don't mind any #theWoker
+i speak polish and english
+i RLY like sova valorant ohmy god sova valorant fans speak to me PLEASe. also valo fans in general my other favs r sage and cypher
+also i love birds, cars and maths.. feel free to talk abt those to me too i love these topics.
+i rarely dm someone first but feel free to dm me! i might be a bit shy at first but i'm rly friendly :3
 <!--
 **onykks/onykks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
